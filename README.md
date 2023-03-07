@@ -1,4 +1,6 @@
 # sistemkoin
+# I didn't receive notification yet. Did you add me as contact?
+
 Lets discuss via Skype.
 My skype user name is cxpwb@outlook.com
 Or you can find me by
